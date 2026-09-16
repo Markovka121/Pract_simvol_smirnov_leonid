@@ -1,0 +1,1 @@
+# Pract_simvol_smirnov_leonid
